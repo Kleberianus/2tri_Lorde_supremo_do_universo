@@ -1,0 +1,1 @@
+# 1tri_Lorde_supremo_do_universo
